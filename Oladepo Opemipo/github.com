@@ -1,1 +1,6 @@
-Hfu
+THE STORY OF VALENTINE DAY
+
+
+The Catholic Church recognizes at least three different saints named Valentine or Valentinus, all of whom were martyred. One legend contends that Valentine was a priest who served during the third century in Rome. When Emperor Claudius II decided that single men made better soldiers than those with wives and families, he outlawed marriage for young men. Valentine, realizing the injustice of the decree, defied Claudius and continued to perform marriages for young lovers in secret. When Valentine’s actions were discovered, Claudius ordered that he be put to death. Still others insist that it was Saint Valentine of Terni, a bishop, who was the true namesake of the holiday. He, too, was beheaded by Claudius II outside Rome.
+
+Other stories suggest that Valentine may have been killed for attempting to help Christians escape harsh Roman prisons, where they were often beaten and tortured. According to one legend, an imprisoned Valentine actually sent the first “valentine” greeting himself after he fell in love with a young girl—possibly his jailor’s daughter—who visited him during his confinement. Before his death, it is alleged that he wrote her a letter signed “From your Valentine,” an expression that is still in use today. Although the truth behind the Valentine legends is murky, the stories all emphasize his appeal as a sympathetic, heroic and—most importantly—romantic figure. By the Middle Ages, perhaps thanks to this reputation, Valentine would become one of the most popular saints in England and France.
